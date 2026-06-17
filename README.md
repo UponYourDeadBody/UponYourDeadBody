@@ -2,8 +2,9 @@
 
 ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
  
-<img width="500" height="420" alt="image" src="https://github.com/user-attachments/assets/9af0e616-7280-4aa0-a764-d1082663d331" />
+<img width="1200" height="777" alt="Lennabel" src="https://github.com/user-attachments/assets/a93c9a2c-152f-4039-8ae4-cef1649075b1" />
 
-"If you're so fond of this world, you can stay here for the rest of your short little life for all I care."
+
+ Quoth the Raven “Nevermore.”
  
 </div>
