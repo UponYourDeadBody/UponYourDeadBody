@@ -1,10 +1,7 @@
 <div align="center">
-
-‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
  
-<img width="1200" height="777" alt="Lennabel" src="https://github.com/user-attachments/assets/a93c9a2c-152f-4039-8ae4-cef1649075b1" />
+ <img src="https://visitor-badge.laobi.icu/badge?page_id=UponYourDeadBody.UponYourDeadBody&left_color=black&right_color=black&left_text=FuckUps:"  />
 
+<br clear="both">
 
- Quoth the Raven “Nevermore.”
- 
-</div>
+<img src="https://file.garden/amjGA3AAXW4qEKvg/blur_edges.png" width="900" height="500" />
